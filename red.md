@@ -9,3 +9,5 @@ I was really confused by it and thought oh must have been a wrong number calling
 I was obviously very uneasy but went about getting ready for the day. As I walked out the door there was a man I hadn’t seen before I said hello and he responded...
 
 “Hello my name, you should have listened to your voicemail”
+
+End of story
